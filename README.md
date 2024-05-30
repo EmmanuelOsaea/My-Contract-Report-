@@ -46,4 +46,6 @@ The partnership will involve:
 
 * **Exit Strategy:** Predefined strategy for termination if objectives are not met.
 
-* ***Conclusion*** A partnership between Emmasco LTD and Gazprom promises mutual growth and innovation, enhancing operations and market reach for both companies. We look forward to discussing the details further and are confident in the success of this partnership.
+***Conclusion***
+
+A partnership between Emmasco LTD and Gazprom promises mutual growth and innovation, enhancing operations and market reach for both companies. We look forward to discussing the details further and are confident in the success of this partnership.
